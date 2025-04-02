@@ -1,2 +1,0 @@
-# Vinnovateitround2
-CREATED AS A TASK FOR VINNOVATEIT
